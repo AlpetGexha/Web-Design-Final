@@ -1,2 +1,2 @@
-# Ai Start Up
+# AI Startup - NovaMind
 
